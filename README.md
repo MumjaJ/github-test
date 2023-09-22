@@ -27,6 +27,6 @@
 ## Contact information
 - **Email:** jane.puzey@gmail.com
 - www.linkedin.com/in/jane-puzey
-- www.mistyfield29755@getalby.com
+
  
 
